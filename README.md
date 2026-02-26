@@ -1,2 +1,2 @@
-# Sanoria-
+SANORIA COSMETICS-
 Beauty Products
